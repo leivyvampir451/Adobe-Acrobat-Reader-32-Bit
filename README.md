@@ -1,0 +1,1 @@
+# Adobe-Acrobat-Reader-32-Bit
